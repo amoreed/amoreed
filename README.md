@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @amoreed ...
+- 👋 Hi, I’m @amoreed ..
 - 👀 I’m interested in 
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on 
